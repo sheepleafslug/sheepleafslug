@@ -1,5 +1,4 @@
-
-
-![MOONBERRY](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExYnRoMnRqaTg1a2lnY3RlYXdkMXJ2MjI3aXpkNTBmdnlrdmptNHVobiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/b9pGLtL8zDctBcxGIa/giphy.gif)
-
 # I LOVVE MOONEBRRYY
+
+![MOONBERRY](https://cdn.discordapp.com/attachments/1497808060079411313/1509908921966661642/image0.gif?ex=6a1ae3c3&is=6a199243&hm=9b7d60b3f32eb4a006114dd0516abebd34078b791b0275a5a61c7f1bbd77a1ae&)
+
