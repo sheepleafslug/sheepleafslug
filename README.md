@@ -1,6 +1,6 @@
 
 
-![THREE](https://cdn.discordapp.com/attachments/1497808060079411313/1539169826776555561/IMG_1691.gif?ex=6a932edb&is=6a91dd5b&hm=2e1913963d7cd66f68d4da9cbd0ba4e58f774c9083f7a29262ab8a1466739491&)
+![THREE](https://tenor.com/dUo4hkMZ6hn.gif)
 
 
 # I LOVVE THREE
